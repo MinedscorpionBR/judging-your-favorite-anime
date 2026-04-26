@@ -1,1 +1,0 @@
-# judging-your-favorite-anime
